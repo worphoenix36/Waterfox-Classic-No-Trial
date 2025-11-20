@@ -1,0 +1,1 @@
+# Waterfox-Classic-No-Trial
